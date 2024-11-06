@@ -1,6 +1,6 @@
 # Kulhad Pizza Couple: Story of Sehaj Arora & Gurpreet Kaur
 
-This is the story of Sehaj Arora and Gurpreet Kaur, better known as the Kulhad Pizza Viral Couple. Sehaj Arora and Gurpreet Kaur are a married couple who became famous for Kulhad Pizza. Their page called ‘freshbitesss’ has 98.1K+ followers on Instagram.
+This is the story of Sehaj Arora and Gurpreet Kaur, better known as the Kulhad Pizza Viral Couple. Sehaj Arora and Gurpreet Kaur are a married couple who became famous for <a href="https://kulhadpizza.com/" target="_blank">Kulhad Pizza</a>. Their page called ‘freshbitesss’ has 98.1K+ followers on Instagram.
 
 Sehaj Arora and Gurpreet Kaur were newlyweds in 2022 when they decided to start a small food stall. They came up with the unique idea of serving pizza in kulhads, which caught the attention of a local food blogger. The blogger posted a video of their innovative pizza on social media, and it didn’t take long for the video to become an internet sensation.
 
