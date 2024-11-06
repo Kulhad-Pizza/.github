@@ -45,3 +45,5 @@ Soon, people from Delhi, Rajasthan, Uttar Pradesh, and even Bihar began flocking
  
 
 As their popularity soared, Sehaj and Gurpreet built a large following on social media. Sehaj reached 257,000 followers on Instagram, while Gurpreet gathered 161,000. They also started a YouTube channel to share their journey and daily life, further connecting with their growing fanbase.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FqFoEKZdHiU?si=Z_wu-ud0qL3GCvVg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
