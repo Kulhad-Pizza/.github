@@ -30,3 +30,18 @@ In a bold move, Sehaj traveled 600 kilometers from Jalandhar to Jaipur on an Act
  
 
 Although Gurpreet’s parents were initially hesitant, Sehaj’s sincerity and dedication won them over. Their approval led to a joyful wedding, and Gurpreet joined Sehaj in Jalandhar to start a new chapter together.
+
+# Viral Kulhad Pizza Couple
+After their marriage, Gurpreet joined Sehaj in running their small food stall. Though she had little experience in cooking at first, she quickly adapted and learned the skills needed to help the business thrive.
+
+ 
+
+One day, while serving customers, a food blogger noticed the couple’s unique pizza served in traditional kulhads (clay cups) and shared their story on social media. The video went viral, capturing the attention of food lovers far and wide.
+
+ 
+
+Soon, people from Delhi, Rajasthan, Uttar Pradesh, and even Bihar began flocking to their stall, eager to taste the famous kulhad pizza and meet the charming couple behind it.
+
+ 
+
+As their popularity soared, Sehaj and Gurpreet built a large following on social media. Sehaj reached 257,000 followers on Instagram, while Gurpreet gathered 161,000. They also started a YouTube channel to share their journey and daily life, further connecting with their growing fanbase.
