@@ -4,7 +4,7 @@ This is the story of Sehaj Arora and Gurpreet Kaur, better known as the Kulhad P
 
 Sehaj Arora and Gurpreet Kaur were newlyweds in 2022 when they decided to start a small food stall. They came up with the unique idea of serving pizza in kulhads, which caught the attention of a local food blogger. The blogger posted a video of their innovative pizza on social media, and it didn’t take long for the video to become an internet sensation.
 
-In the city of Jalandhar, a love story as flavorful as their famous pizzas has captured hearts across India. Sehaj Arora and Gurpreet Kaur, endearingly known as the “Kulhad Pizza Couple”.
+In the city of Jalandhar, a love story as flavorful as their famous pizzas has captured hearts across India. Sehaj Arora and Gurpreet Kaur, endearingly known as the “<a href="https://kulhadpizza.com/" target="_blank">Kulhad Pizza Couple</a>”.
 
  One day, while serving customers, a food blogger took notice of the couple’s unique pizza served in traditional kulhads (clay cups) and shared their story on social media. The video went viral, have become viral sensations of social media.
 
